@@ -1,4 +1,4 @@
-☆ - DNI do not interact ,, only int with me if its rlly important !! (for example, telling me abt a skin stealer)).
+☆ - DNI do not interact ,, only int with me if its rlly important !! (for example, telling me abt a skin stealer or smthing personal (4 friends)).
 
 ☆ - DNIUF/DNIUC/DNIUID do not interact unless friend/close/i do !! pretty self-explanatory ,,
 
