@@ -2,7 +2,7 @@
 
 ☆ - DNIUF/DNIUC/DNIUID do not interact unless friend/close/i do !! pretty self-explanatory ,,
 
-☆ - IWC/IWEC interact with caution/extreme caution . when i use this i might be in a pissy mood .
+☆ - IWC/IWEC interact with caution/extreme caution . when i use this i might be in a bad mood .
 
 ☆ - AFK/SLEEPING also pretty self-explanatory ... when using these plz whisper !!!
 
